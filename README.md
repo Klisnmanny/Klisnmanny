@@ -1,7 +1,7 @@
 ## Olá sou o Washington Klisnmanny👋
 
 <br />
-Sou um desenvolvedor apaixonado por programação, Brasileiro!!! 
+Sou um desenvolvedor apaixonado por programação!!! 
 
 <br />
 <br />
